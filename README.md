@@ -1,2 +1,2 @@
 # fiut
-opis
+opis tytyryty
